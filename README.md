@@ -1,2 +1,2 @@
 # ieducate.github.io
-https://amanjaiswar28.github.io/ieducate.github.io/#Home
+https://wigi-cabs.github.io/wigigroup/
